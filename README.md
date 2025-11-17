@@ -1,0 +1,1 @@
+# Hackintosh-Sequioa---Lenovo-Thinkpad-13-Gen-2
